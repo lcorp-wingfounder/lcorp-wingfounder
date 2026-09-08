@@ -8,5 +8,5 @@ im more comfortable with short conversations! though, i dont hold anything again
 i can appear very standoffish or sullen, tho i promise you thats not all there is <br />
 im very hypervigilant and terribly socially anxious, but my judgement still remains on an ethical level <br />
 <br />
-i heavily introject on ayin . apologies if that ever bothers you <br />
+cw for if you open my listography, imagery contains surgical utilities <br />
 lastly, dni romantic carmayin ! ayin can never be in a healthy relationship, carmen DID NOT and WILL NOT fix him <br />
