@@ -4,4 +4,4 @@
 <blockquote>creds 2 all saints street artist, lingzi</blockquote>
 <br />
 <p align="center"> 
-hi all my info has been transferred to my listography dot org aka the link attached to this github . CW for surgical utilities
+github mainly used for ponytown, more stuff on my listography (CW 4 surgical utilities and an insane amount of text on screen + lightmode)
