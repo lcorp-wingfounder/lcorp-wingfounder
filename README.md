@@ -4,4 +4,6 @@
 <blockquote>creds 2 all saints street artist, lingzi</blockquote>
 <br />
 <p align="center"> 
-github mainly used for ponytown, more stuff on my listography (CW 4 surgical utilities and an insane amount of text on screen + lightmode)
+github mainly used for ponytown, more stuff on my listography <b>(CW 4 surgical utilities + lightmode warning)</b>
+<br />
+proud group member of the ccgc📢 6 years ongoing
