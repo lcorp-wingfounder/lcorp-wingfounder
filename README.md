@@ -4,7 +4,7 @@
 <blockquote>creds 2 all saints street artist, lingzi(零子还有钞)</blockquote>
 <br />
 <p align="center"> 
-github mainly used for ponytown, more stuff on my listography <b>(CW 4 surgical utilities + lightmode warning)</b>
+github mainly used for ponytown, more stuff on my <a href="https://listography.com/directorA" style="color: #c9c5aa;">listography</a> <b>(CW 4 surgical utilities + lightmode warning)</b>
 <br />
 proud group member of the ccgc📢 6 years ongoing
 <p align="center"> 
