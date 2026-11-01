@@ -7,3 +7,10 @@
 github mainly used for ponytown, more stuff on my listography <b>(CW 4 surgical utilities + lightmode warning)</b>
 <br />
 proud group member of the ccgc📢 6 years ongoing
+<p align="center"> 
+///
+<br />
+<p align="center"> 
+thank you! [pt-everypony](https://github.com/pt-everypony)
+<p align="center"> 
+<img width="460" height="49" alt="ttyayay" src="https://github.com/user-attachments/assets/76d9bfbe-3c27-4333-b901-ca7b6a1d6268" />
