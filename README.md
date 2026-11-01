@@ -11,6 +11,6 @@ proud group member of the ccgc📢 6 years ongoing
 ///
 <br />
 <p align="center"> 
-thank you! [pt-everypony](https://github.com/pt-everypony)
+thank you!
 <p align="center"> 
 <img width="460" height="49" alt="ttyayay" src="https://github.com/user-attachments/assets/76d9bfbe-3c27-4333-b901-ca7b6a1d6268" />
