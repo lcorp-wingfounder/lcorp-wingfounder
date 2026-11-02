@@ -6,11 +6,13 @@
 <p align="center"> 
 github mainly used for ponytown, more stuff on my <a href="https://listography.com/directorA" style="color: #c9c5aa;">listography</a> <b>(CW 4 surgical utilities + lightmode warning)</b>
 <br />
-proud group member of the ccgc📢 6 years ongoing
+proud group member of the ccgc📢 6 years ongoing , readme will be renovated js not rn
 <p align="center"> 
 ///
 <br />
 <p align="center"> 
-thank you! <a href="https://github.com/pt-everypony" style="color: #FF0036;">@pt-everypony</a>
+thank you! <a href="https://github.com/pt-everypony" style="color: #FF0036;">@pt-everypony</a> , <a href="https://github.com/Ponytowns-rewards" style="color: #FF0036;">@Ponytowns-rewards</a>
 <p align="center"> 
 <img width="460" height="49" alt="ttyayay" src="https://github.com/user-attachments/assets/76d9bfbe-3c27-4333-b901-ca7b6a1d6268" />
+  <p align="center"> 
+<img width="384" height="48" alt="yay!!!" src="https://github.com/user-attachments/assets/8ebc8d23-1148-4138-9f03-6021ef547c23" />
