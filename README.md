@@ -1,3 +1,4 @@
+
 <p align="center"> 
 <img width="737" alt="lynnickk" src="https://64.media.tumblr.com/18f6b45616d827e1ef1a52f7c4c36605/294d3bcf3783c6ea-17/s1280x1920/8158d0b159999b258f2299f773c6042388305be6.gifv" />
 <p align="center"> 
@@ -11,8 +12,10 @@ proud group member of the ccgc📢 6 years ongoing , readme will be renovated js
 ///
 <br />
 <p align="center"> 
-thank you! <a href="https://github.com/pt-everypony" style="color: #FF0036;">@pt-everypony</a> , <a href="https://github.com/Ponytowns-rewards" style="color: #FF0036;">@Ponytowns-rewards</a>
+thank you! <a href="https://github.com/pt-everypony" style="color: #FF0036;">@pt-everypony</a> , <a href="https://github.com/Ponytowns-rewards" style="color: #FF0036;">@Ponytowns-rewards</a> , <a href="https://github.com/pt-ship-nominations" style="color: #FF0036;">@pt-ship-nominations</a>
 <p align="center"> 
 <img width="460" height="49" alt="ttyayay" src="https://github.com/user-attachments/assets/76d9bfbe-3c27-4333-b901-ca7b6a1d6268" />
   <p align="center"> 
 <img width="384" height="48" alt="yay!!!" src="https://github.com/user-attachments/assets/8ebc8d23-1148-4138-9f03-6021ef547c23" />
+  <p align="center"> 
+<img width="508" height="54" alt="nominatoon" src="https://github.com/user-attachments/assets/2fbd0384-7019-4d1a-8883-8c3d2df36574" />
